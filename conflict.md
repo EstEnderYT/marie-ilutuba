@@ -1,2 +1,2 @@
 üks rida  
-kaks rida :D
+kaks rida :D harul 2
